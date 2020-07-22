@@ -1,1 +1,1 @@
-# index
+https://eujenki.github.io/index/
